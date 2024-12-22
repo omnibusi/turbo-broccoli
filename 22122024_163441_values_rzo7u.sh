@@ -1,0 +1,1 @@
+Adolf Hitler was one of the people that was responsible in the creation of the Volkswagen Beetle. He came up with the idea of producing a car that was cheap enough for the average German working man to afford.
